@@ -1,2 +1,7 @@
 # Infant-Diet-Optimization
 Many mothers cannot breast feed their babies for too long. Yet they know their babies deserve to get the best nutriments particularly at such early stage in their babies' development. 
+●Human milk is the optimal source of nutrients for infants. WHO recommends that breastfeeding be continued at least through the child’s second birthday. Certain factors may prevent this from happening ranging from health issues, to the baby’s huge appetite to maternal death. In my case it was the struggle for my life for hours in the theatre due to birth complications that made my family seek for an alternative source of feeding the baby. That event made breastfeeding unappealing to my baby who had discovered that bottle feeding was a faster way of satisfying his hunger.
+●So one of our biggest decisions became picking the right food that will have all the necessary nutrients for the baby at the least possible cost and will be sweet enough for the baby to want to eat.
+●A healthy baby is every parent goal and being In a fast-paced world with career goals and an 8 to 5 job, I definitely wanted to make sure that the food I give my baby will meet all the criteria above to make your life easier.
+We our working with a company that produces baby food to try to answer this question
+Benchmarks - Our secondary research here shows that the competitors have a pretty much similar nutrient consistency as the product we are trying to introduce to this particular audience. Examples here are of the industry leaders in Baby Food ex. “GERBER” etc.
